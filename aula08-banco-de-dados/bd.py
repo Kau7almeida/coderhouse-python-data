@@ -1,0 +1,1 @@
+# Assistir aula gravada pois não entendi direito
